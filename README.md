@@ -1,2 +1,3 @@
-# nalki
-ipusa
+<a href="https://www.blogger.com" target=main onmouseover="window.open
+ ('https://www.googleadservices.com/pagead/aclk?sa=L&ai=CZtFyn2pzXKH_PIqIwgPm7IEg8tmi3FLukdy_xge_4R4QASDahoNqYMkGoAGE8MvYA8gBAagDAaoExQFP0Po28Q6AUvOQ6L_Z_tp4963gVM6k6BSYpj1Xh0y5flU2_DIHB2FBLk22Ag0kqN3Fx8ZyqL6hmHwkPmepsoUCyfcFVlO28NsDo-jjSHqm0iy9ih6uAj__e4ti3i-QZneXJgtf0BMHQIn2qwLLV2KgP0aq06rj6k7_QwE175VHknSjzQ-YJznbh4ICTY-fMeyW82MGNy7XB4zGFh9aWPwzGfUG2cXHPyOi4ikmSXfIGcZraVQFt91yAqt9d7i0hO8TdzQpJYAH5I-0J6gHjs4bqAfVyRuoB6gGqAfZyxuoB8_MG6gHpr4b2AcB0ggHCIBhEAEYArEJ_oOyGJXowtWACgHYEwI&ae=1&num=1&cid=CAASEuRoU9-S2aesuoyDEZdaRSqxkA&sig=AOD64_0TZiX7Dx8QVRyRAMlQBbXO-GEv7Q&client=ca-pub-7576453856298941&adurl=https://www.themarlincompany.com/workplace-digital-signage-boards/%3Fgclid%3DEAIaIQobChMI4crf7YHW4AIVCoRwCh1mdgAEEAEYASAAEgJct_D_BwE');" style="text-decoration: none"><font size=3 face=arial color=#ffff></font></a>
+
